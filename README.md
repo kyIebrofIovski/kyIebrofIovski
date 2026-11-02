@@ -1,16 +1,22 @@
-## Hi there 👋
 
-<!--
-**kyIebrofIovski/kyIebrofIovski** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<div align="center">
 
-Here are some ideas to get you started:
+  shig<a href="https://github.com/deepaffection"><img src="https://img.shields.io/badge/or niko-rgba(0,0,0,0)?style=flat-square&labelColor=rgba(0,0,0,0)&color=rgba(0,0,0,0)" /></a>  <a href="https://github.com/deepaffection"><img src="https://img.shields.io/badge/𖹭-rgba(0,0,0,0)?style=flat-square&labelColor=rgba(0,0,0,0)&color=rgba(0,0,0,0)" /></a>,  𖹭 <br> <a href="https://github.com/deepaffection"><img src="https://img.shields.io/badge/she / he-rgba(0,0,0,0)?style=flat-square&labelColor=rgba(0,0,0,0)&color=rgba(0,0,0,0)" /></a>
+<img src="https://komarev.com/ghpvc/?username=peruere&color=5C5C5C&style=flat-square&label=⠀views⠀&base=13693"> <br> everything below is clickable ──────────────────
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+  <table>
+    <tr>      
+      <td>
+        <div align="center">
+<a href="https://deathnote.atabook.org/"><img src="https://img.shields.io/badge/新book-rgba(0,0,0,0)?style=flat-square&labelColor=rgba(0,0,0,0)&color=rgba(0,0,0,0)" /></a> , <a href="https://southpark.atabook.org/"><img src="https://img.shields.io/badge/request a doodle-rgba(0,0,0,0)?style=flat-square&labelColor=rgba(0,0,0,0)&color=rgba(0,0,0,0)" /></a> , <a href="https://rentry.co/skrable"><img src="https://img.shields.io/badge/interests-rgba(0,0,0,0)?style=flat-square&labelColor=rgba(0,0,0,0)&color=rgba(0,0,0,0)" /></a> <br>
+         <img width="364" height="150" alt="690727988-f683302a-3b07-4492-b5cf-e8c0351ed7c1 (2)" src="https://github.com/user-attachments/assets/ac52886d-1e05-4829-8083-011527cdb103" />
+<br> <a href="https://rentry.co/17aug"><img src="https://img.shields.io/badge/match 𖹭-rgba(0,0,0,0)?style=flat-square&labelColor=rgba(0,0,0,0)&color=rgba(0,0,0,0)" /></a> , <a href="https://rentry.co/tworooks"><img src="https://img.shields.io/badge/rentry + byi-rgba(0,0,0,0)?style=flat-square&labelColor=rgba(0,0,0,0)&color=rgba(0,0,0,0)" /></a> , <a href="https://en.pronouns.page/@shig"><img src="https://img.shields.io/badge/prns.page-rgba(0,0,0,0)?style=flat-square&labelColor=rgba(0,0,0,0)&color=rgba(0,0,0,0)" /></a>
+<br> ──────────────────────────────── <br>
+         wipwip <br>
+──────────────────────────────── <br>
+<a href="https://rentry.co/ptaccessories"><img src="https://img.shields.io/badge/pt accessories-rgba(0,0,0,0)?style=flat-square&labelColor=rgba(0,0,0,0)&color=rgba(0,0,0,0)" /></a> , <a href="https://rentry.co/howtotint"><img src="https://img.shields.io/badge/how to tint-rgba(0,0,0,0)?style=flat-square&labelColor=rgba(0,0,0,0)&color=rgba(0,0,0,0)" /></a> , <a href="https://rentry.co/ptskinguide"><img src="https://img.shields.io/badge/pt skin guide-rgba(0,0,0,0)?style=flat-square&labelColor=rgba(0,0,0,0)&color=rgba(0,0,0,0)" /></a>
+</table>
+
+
+<br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br>
