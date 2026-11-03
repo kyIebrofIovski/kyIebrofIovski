@@ -13,7 +13,7 @@
          <img width="364" height="150" alt="fdeswdefgfre" src="https://github.com/user-attachments/assets/07d3d57b-0177-4bcf-9e9c-d592c765c381" />
 <br> <a href="https://rentry.co/17aug"><img src="https://img.shields.io/badge/match 𖹭-rgba(0,0,0,0)?style=flat-square&labelColor=rgba(0,0,0,0)&color=rgba(0,0,0,0)" /></a> , <a href="https://rentry.co/tworooks"><img src="https://img.shields.io/badge/rentry + byi-rgba(0,0,0,0)?style=flat-square&labelColor=rgba(0,0,0,0)&color=rgba(0,0,0,0)" /></a> , <a href="https://en.pronouns.page/@shig"><img src="https://img.shields.io/badge/prns.page-rgba(0,0,0,0)?style=flat-square&labelColor=rgba(0,0,0,0)&color=rgba(0,0,0,0)" /></a>
 <br> ──────────────────────────────── <br>
-         wipwip <br>
+  <sub> pl+rus </sub> , <a href="https://deathnote.atabook.org/"><img src="https://img.shields.io/badge/slavic-rgba(255,0,123,0)?style=flat-square&labelColor=rgba(255,0,123,0)&color=2a2a2b" /></a> woman <br>      (¬_¬" <sub> 18 </sub> <a href="https://deathnote.atabook.org/"><img src="https://img.shields.io/badge/yo-rgba(255,0,123,0)?style=flat-square&labelColor=rgba(255,0,123,0)&color=2a2a2b" /></a>  <br>
 ──────────────────────────────── <br>
 <a href="https://rentry.co/ptaccessories"><img src="https://img.shields.io/badge/pt accessories-rgba(0,0,0,0)?style=flat-square&labelColor=rgba(0,0,0,0)&color=rgba(0,0,0,0)" /></a> , <a href="https://rentry.co/howtotint"><img src="https://img.shields.io/badge/how to tint-rgba(0,0,0,0)?style=flat-square&labelColor=rgba(0,0,0,0)&color=rgba(0,0,0,0)" /></a> , <a href="https://rentry.co/ptskinguide"><img src="https://img.shields.io/badge/pt skin guide-rgba(0,0,0,0)?style=flat-square&labelColor=rgba(0,0,0,0)&color=rgba(0,0,0,0)" /></a>
 </table>
